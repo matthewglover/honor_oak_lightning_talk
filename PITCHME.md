@@ -28,3 +28,10 @@
 #### It's south of the river!
 ![Logo](http://www.takeawaysulike.co.uk/ff/images/south-east-london.gif)
 ---
+#### Rows and rows of houses
+![Logo](http://spikesaycheese.weebly.com/uploads/4/7/3/5/4735364/6519457.jpg?605)
+---
+#### Rubbish transport
+![Logo](https://s-media-cache-ak0.pinimg.com/736x/0d/09/07/0d09078ed028e0192db9d2a46e6a3b0a--email-trains.jpg)
+---
+
