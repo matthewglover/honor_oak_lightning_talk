@@ -37,8 +37,8 @@
 #### Cultural vaccuum
 ![Logo](https://www.bingotastic.com/wp-content/uploads/2013/11/mecca-catford-from-the-outside.png)
 ---
-# Closing thoughts
----
+#### Closing thoughts
+- Things change
 - Little/no knowledge
 - Small circle of opinions
 - Different requirements
