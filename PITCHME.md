@@ -34,4 +34,12 @@
 #### Rubbish transport
 ![Logo](https://s-media-cache-ak0.pinimg.com/736x/0d/09/07/0d09078ed028e0192db9d2a46e6a3b0a--email-trains.jpg)
 ---
+#### Cultural vaccuum
+![Logo](https://www.bingotastic.com/wp-content/uploads/2013/11/mecca-catford-from-the-outside.png)
+---
+# Closing thoughts
+---
+- Little/no knowledge
+- Small circle of opinions
+- Different requirements
 
